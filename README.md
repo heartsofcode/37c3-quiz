@@ -47,6 +47,13 @@ z = nicht lila Klits
 Auf dieser (wie anderer c3) Veranstaltungen gibt es ein lokales Kommunikationssystem. Wer die vierstellige Nummer von Menschen oder Assemblies kennt, kann mit ihnen sprechen. Finde den Ort zu dem folgende Nummer gehört: xyxz
 
 ##  Finale Station (7)
+
+
+## ACHTUNG UPDATE:
+
+## BITTE DIE LETZTE STATION NICHT MEHR AUFSUCHEN:
+## IHR KÖNNT UNS DIE LÖSUNG BEIM HEART OF CODE DOME VORBEI BRINGEN:
+
 Hier kannst du eine Dienstleistung in Anspruch nehmen (helfen macht aber auch viel Spaß). 
 Die Form der Kommunikation die hier ermöglicht wird, wollen wir nutzen. Trete mit uns durch diese in Kontakt und teile uns deine Lösungen mit. Wenn du an der Klitorisverlosung teilnehmen möchtest, dann ergänze auch deine Wunschfarbe und wie wir mit dir Kontakt aufnehmen können.
 
